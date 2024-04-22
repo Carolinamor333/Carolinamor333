@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Carolinamor333
+- 👋 Hi, I’m @Carolinamor369
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on AI
